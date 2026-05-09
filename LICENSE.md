@@ -1,4 +1,4 @@
-
+automatic Script for dandy's world offers the most advanced dandy's world Script, with speed and auto-upgrade. Perfect for dominating any match.
 
 
 
